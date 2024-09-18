@@ -10,7 +10,7 @@
 </p>
 <br>
 <p align="center">
-<img src="https://i.imgur.com/dgd9Xvy.gif"/> I do not mind being interacted with on Pony Town. Feel free to boop, cuddle, kiss, et cetera.
+<img src="https://i.imgur.com/dgd9Xvy.gif"/> I do not mind being interacted with on Pony Town. Feel free to boop, cuddle, et cetera.
 </p>
 <br>
 <p align="center">
