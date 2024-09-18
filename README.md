@@ -6,7 +6,7 @@
 <img src="http://i748.photobucket.com/albums/xx122/luuuh/divisorias/barinhas47.gif" width="200px" class="center"/>
 </p>
 <p align="center">
-Greetings, dear user. My page isn't special, but feel free to take a look around~
+𝙂𝙧𝙚𝙚𝙩𝙞𝙣𝙜𝙨, 𝙙𝙚𝙖𝙧 𝙪𝙨𝙚𝙧. 𝙈𝙮 𝙥𝙖𝙜𝙚 𝙞𝙨𝙣'𝙩 𝙨𝙥𝙚𝙘𝙞𝙖𝙡, 𝙗𝙪𝙩 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙩𝙖𝙠𝙚 𝙖 𝙡𝙤𝙤𝙠 𝙖𝙧𝙤𝙪𝙣𝙙~
 </p>
 <br>
 <p align="center">
