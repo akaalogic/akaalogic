@@ -24,6 +24,9 @@
 <p align="center">
 <a href="https://samjop.neocities.org" target="content">𝙽𝙴𝙾𝙲𝙸𝚃𝙸𝙴𝚂</a> | <a href="https://samjop.straw.page" target="content">𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴</a> | <a href="https://akalogic.atabook.org" target="content">𝙰𝚃𝙰𝙱𝙾𝙾𝙺</a>
 </p>
+<p align="center">
+🍉 <a href="https://arab.org/click-to-help/palestine/" target="content">Do your daily clicks.</a> 🍉
+</p>
 <br>
 <p align="center">
 <img src="https://64.media.tumblr.com/c8bcd984ea0c92dbeeef7e9802cd14f8/a0ad4fdb1ec6b1ac-e0/s500x750/cef952228fef1a6c245d1f18d25a25247925bd04.gifv" width="500px" class="center"/>
