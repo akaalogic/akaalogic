@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/63949ea4dc5a9bc420a72f6c383a66d1/c54703c9734fdba6-04/s1280x1920/8d37ae0f18dfc20481f88b419bc0390ce01e9845.png" width="600px" class="center"/>
+<img src="https://64.media.tumblr.com/63949ea4dc5a9bc420a72f6c383a66d1/c54703c9734fdba6-04/s1280x1920/8d37ae0f18dfc20481f88b419bc0390ce01e9845.png" width="700px" class="center"/>
 </p>
 <br>
 <p align="center">
@@ -22,5 +22,13 @@
 </p>
 <br>
 <p align="center">
+<a href="https://samjop.neocities.org" target="content">𝙽𝙴𝙾𝙲𝙸𝚃𝙸𝙴𝚂</a> | <a href="https://samjop.straw.page" target="content">𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴</a> | <a href="https://akalogic.atabook.org" target="content">𝙰𝚃𝙰𝙱𝙾𝙾𝙺</a>
+</p>
+<br>
+<p align="center">
 <img src="https://64.media.tumblr.com/c8bcd984ea0c92dbeeef7e9802cd14f8/a0ad4fdb1ec6b1ac-e0/s500x750/cef952228fef1a6c245d1f18d25a25247925bd04.gifv" width="500px" class="center"/>
+</p>
+<br>
+<p align="center">
+<img src="https://media.tenor.com/R1SS54Cemj8AAAAi/library-of-ruina-project-moon.gif" width="60px"/><img src="https://media.tenor.com/cWl9gFZAkgwAAAAi/library-of-ruina-project-moon.gif" width="74px"/>
 </p>
