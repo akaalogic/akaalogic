@@ -22,7 +22,7 @@
 </p>
 <br>
 <p align="center">
-<a href="https://samjop.neocities.org" target="content">𝙽𝙴𝙾𝙲𝙸𝚃𝙸𝙴𝚂</a> | <a href="https://samjop.straw.page" target="content">𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴</a> | <a href="https://akalogic.atabook.org" target="content">𝙰𝚃𝙰𝙱𝙾𝙾𝙺</a> | <a href="https://listography.com/akaalogic?m=6404158689" target="content">𝙻𝙸𝚂𝚃𝙾𝙶𝚁𝙰𝙿𝙷𝚈</a>
+<a href="https://akaalogic.neocities.org" target="content">𝙽𝙴𝙾𝙲𝙸𝚃𝙸𝙴𝚂</a> | <a href="https://akaalogic.straw.page" target="content">𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴</a> | <a href="https://akalogic.atabook.org" target="content">𝙰𝚃𝙰𝙱𝙾𝙾𝙺</a> | <a href="https://listography.com/akaalogic?m=6404158689" target="content">𝙻𝙸𝚂𝚃𝙾𝙶𝚁𝙰𝙿𝙷𝚈</a>
 </p>
 <p align="center">
 🍉 <a href="https://arab.org/click-to-help/palestine/" target="content">Do your daily clicks.</a> 🍉
