@@ -6,22 +6,22 @@
 </p>
 <br>
 <p align="center">
-<img src="http://i748.photobucket.com/albums/xx122/luuuh/divisorias/barinhas47.gif" width="200px" class="center"/>
+<img src="http://i748.photobucket.com/albums/xx122/luuuh/divisorias/barinhas47.gif" width="150px" class="center"/>
 </p>
 <p align="center">
 𝙂𝙧𝙚𝙚𝙩𝙞𝙣𝙜𝙨, 𝙙𝙚𝙖𝙧 𝙪𝙨𝙚𝙧. 𝙈𝙮 𝙥𝙖𝙜𝙚 𝙞𝙨𝙣'𝙩 𝙨𝙥𝙚𝙘𝙞𝙖𝙡, 𝙗𝙪𝙩 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙩𝙖𝙠𝙚 𝙖 𝙡𝙤𝙤𝙠 𝙖𝙧𝙤𝙪𝙣𝙙~
 </p>
 <br>
 <p align="center">
-<img src="https://i.imgur.com/dgd9Xvy.gif"/> I do not mind being interacted with on Pony Town. Feel free to boop, cuddle, et cetera.
+<img src="https://i.imgur.com/q4AN64Z.gif"/> I do not mind being interacted with on Pony Town. Feel free to boop, cuddle, et cetera.
 </p>
 <br>
 <p align="center">
-<img src="https://i.imgur.com/dgd9Xvy.gif"/> Please send a whisper if you want to chat in Pony Town, I am usually off-tab and will not always be paying attention.
+<img src="https://i.imgur.com/q4AN64Z.gif"/> Please send a whisper if you want to chat in Pony Town, I am usually off-tab and will not always be paying attention.
 </p>
 <br>
 <p align="center">
-<img src="https://i.imgur.com/dgd9Xvy.gif"/> Feel free to leave things on my Strawpage or Atabook~
+<img src="https://i.imgur.com/q4AN64Z.gif"/> Feel free to leave things on my Strawpage or Atabook~
 </p>
 <br>
 <p align="center">
