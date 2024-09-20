@@ -1,6 +1,9 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/63949ea4dc5a9bc420a72f6c383a66d1/c54703c9734fdba6-04/s1280x1920/8d37ae0f18dfc20481f88b419bc0390ce01e9845.png" width="700px" class="center"/>
 </p>
+<p align="center">
+𝓐 𝓬𝓸𝓾𝓹𝓵𝓮 𝓫𝓸𝔂𝓼 𝓸𝓷 𝓶𝔂 𝓶𝓲𝓷𝓭 𝓵𝓪𝓽𝓮𝓵𝔂~
+</p>
 <br>
 <p align="center">
 <img src="http://i748.photobucket.com/albums/xx122/luuuh/divisorias/barinhas47.gif" width="200px" class="center"/>
@@ -26,6 +29,10 @@
 </p>
 <p align="center">
 🍉 <a href="https://arab.org/click-to-help/palestine/" target="content">Do your daily clicks.</a> 🍉
+</p>
+<br>
+<p align="center">
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/bcf5ac68-e2b5-49d8-9ea9-736d45aa6321/da832l1-6b5fce05-1637-4a9c-87b7-6b25c9d1c6f9.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2JjZjVhYzY4LWUyYjUtNDlkOC05ZWE5LTczNmQ0NWFhNjMyMVwvZGE4MzJsMS02YjVmY2UwNS0xNjM3LTRhOWMtODdiNy02YjI1YzlkMWM2ZjkucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0._aN3WMcOqyOWXtwSaIP-pKN9QMGEKP-voxjeOKe4fRM" width="60px" class="center"/>&nbsp&nbsp<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/bcf5ac68-e2b5-49d8-9ea9-736d45aa6321/da82uyj-fa140c2a-303b-499a-a5ec-312e49a47741.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2JjZjVhYzY4LWUyYjUtNDlkOC05ZWE5LTczNmQ0NWFhNjMyMVwvZGE4MnV5ai1mYTE0MGMyYS0zMDNiLTQ5OWEtYTVlYy0zMTJlNDlhNDc3NDEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9qW_XOF49YLSrtXWjbDXoz43E2eo6ovCoM7TlUmiSGE" width="60px" class="center"/>
 </p>
 <br>
 <p align="center">
