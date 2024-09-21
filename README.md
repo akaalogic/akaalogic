@@ -25,6 +25,10 @@
 </p>
 <br>
 <p align="center">
+<img src="https://i.imgur.com/q4AN64Z.gif"/> I am (somewhat) of an alcoholic, and drink alcoholic beverages off and on. However, if I am drunk at the moment, I will most likely keep my distance and not respond to messages until I am sober enough to do so. It's nothing personal, it is just courtesy, I guess.
+</p>
+<br>
+<p align="center">
 <a href="https://akaalogic.neocities.org" target="content">𝙽𝙴𝙾𝙲𝙸𝚃𝙸𝙴𝚂</a> | <a href="https://akaalogic.straw.page" target="content">𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴</a> | <a href="https://akalogic.atabook.org" target="content">𝙰𝚃𝙰𝙱𝙾𝙾𝙺</a> | <a href="https://listography.com/akaalogic?m=6404158689" target="content">𝙻𝙸𝚂𝚃𝙾𝙶𝚁𝙰𝙿𝙷𝚈</a>
 </p>
 <p align="center">
@@ -43,7 +47,7 @@
 <bold>Ponies I Usually Use</bold>
 </p>
 <p align="center">
-<img src="https://i.imgur.com/rIUXQ6x.gif" width="110px" class="center"/><img src="https://i.imgur.com/eYj0a7P.gif" width="110px" class="center"/><img src="https://i.imgur.com/5ptIaJp.gif" width="110px" class="center"/><img src="https://i.imgur.com/DBwC4bx.gif" width="110px" class="center"/><img src="https://i.imgur.com/ss0XC2o.gif" width="110px" class="center"/>
+<img src="https://i.imgur.com/rIUXQ6x.gif" width="110px" class="center"/><img src="https://i.imgur.com/eYj0a7P.gif" width="110px" class="center"/><img src="https://i.imgur.com/5ptIaJp.gif" width="110px" class="center"/><img src="https://i.imgur.com/DBwC4bx.gif" width="110px" class="center"/><img src="https://i.imgur.com/S40Zxhw.gif" width="110px" class="center"/>
 </p>
 <br>
 <p align="center">
