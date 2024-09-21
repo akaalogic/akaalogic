@@ -51,7 +51,7 @@
 <bold>Ponies I Usually Use</bold>
 </p>
 <p align="center">
-<img src="https://i.imgur.com/rIUXQ6x.gif" width="110px" class="center"/><img src="https://i.imgur.com/eYj0a7P.gif" width="110px" class="center"/><img src="https://i.imgur.com/5ptIaJp.gif" width="110px" class="center"/><img src="https://i.imgur.com/DBwC4bx.gif" width="110px" class="center"/><img src="https://i.imgur.com/S40Zxhw.gif" width="110px" class="center"/>
+<img src="https://i.imgur.com/rIUXQ6x.gif" width="110px" class="center"/><img src="https://i.imgur.com/eYj0a7P.gif" width="110px" class="center"/><img src="https://i.imgur.com/5ptIaJp.gif" width="110px" class="center"/><img src="https://i.imgur.com/waNcgy4.gif" width="110px" class="center"/><img src="https://i.imgur.com/S40Zxhw.gif" width="110px" class="center"/>
 </p>
 <br>
 <p align="center">
