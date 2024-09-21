@@ -25,7 +25,11 @@
 </p>
 <br>
 <p align="center">
-<img src="https://i.imgur.com/q4AN64Z.gif"/> I am (somewhat) of an alcoholic, and drink alcoholic beverages off and on. However, if I am drunk at the moment, I will most likely keep my distance and not respond to messages until I am sober enough to do so. It's nothing personal, it is just courtesy, I guess.
+<img src="https://i.imgur.com/q4AN64Z.gif"/> I am (somewhat of) an alcoholic, and drink alcoholic beverages off and on. However, if I am drunk at the moment, I will most likely keep my distance and not respond to messages until I am sober enough to do so. It's nothing personal, it is just courtesy, I guess.
+</p>
+<br>
+<p align="center">
+<img src="https://i.imgur.com/q4AN64Z.gif"/> Other information can be found on Neocities, Strawpage, or Listography... Linked below~!
 </p>
 <br>
 <p align="center">
