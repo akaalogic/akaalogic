@@ -47,7 +47,9 @@
 <bold>Ponies I Usually Use</bold>
 </p>
 <p align="center">
-<img src="https://i.imgur.com/rIUXQ6x.gif" width="110px" class="center"/><img src="https://i.imgur.com/eYj0a7P.gif" width="110px" class="center"/><img src="https://i.imgur.com/5ptIaJp.gif" width="110px" class="center"/><img src="https://i.imgur.com/waNcgy4.gif" width="110px" class="center"/><img src="https://i.imgur.com/S40Zxhw.gif" width="110px" class="center"/>
+<img src="https://i.imgur.com/rIUXQ6x.gif" width="110px" class="center"/><img src="https://i.imgur.com/p5MPjBJ.gif" width="100px" class="center"/><img src="https://i.imgur.com/5ptIaJp.gif" width="110px" class="center"/><img src="https://i.imgur.com/waNcgy4.gif" width="110px" class="center"/>
+<br>
+<img src="https://i.imgur.com/S40Zxhw.gif" width="110px" class="center"/><img src="https://i.imgur.com/r1ClOT0.gif" width="110px" class="center"/><img src="https://i.imgur.com/7nxGbXA.gif" width="130px" class="center"/>
 </p>
 <br>
 <p align="center">
@@ -55,5 +57,5 @@
 </p>
 <br>
 <p align="center">
-<img src="https://media.tenor.com/R1SS54Cemj8AAAAi/library-of-ruina-project-moon.gif" width="60px"/><img src="https://media.tenor.com/cWl9gFZAkgwAAAAi/library-of-ruina-project-moon.gif" width="74px"/>
+<img src="https://media.tenor.com/R1SS54Cemj8AAAAi/library-of-ruina-project-moon.gif" width="60px"/>
 </p>
