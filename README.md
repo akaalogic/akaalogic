@@ -13,7 +13,7 @@
 </p>
 <br>
 <p align="center">
-<img src="https://i.imgur.com/q4AN64Z.gif"/> I do not mind being interacted with on Pony Town. Feel free to boop, cuddle, et cetera.
+<img src="https://i.imgur.com/q4AN64Z.gif"/> I do not mind being interacted with on Pony Town. Feel free to boop, cuddle, kiss, et cetera.
 </p>
 <br>
 <p align="center">
@@ -25,11 +25,11 @@
 </p>
 <br>
 <p align="center">
-<img src="https://i.imgur.com/q4AN64Z.gif"/> Other information can be found on Neocities, Strawpage, or Listography... Linked below~!
+<img src="https://i.imgur.com/q4AN64Z.gif"/> Other information can be found on Neocities, Strawpage, or Rentry... Linked below~!
 </p>
 <br>
 <p align="center">
-<a href="https://akaalogic.neocities.org" target="content">𝙽𝙴𝙾𝙲𝙸𝚃𝙸𝙴𝚂</a> | <a href="https://akaalogic.straw.page" target="content">𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴</a> | <a href="https://akalogic.atabook.org" target="content">𝙰𝚃𝙰𝙱𝙾𝙾𝙺</a> | <a href="https://listography.com/akaalogic?m=6404158689" target="content">𝙻𝙸𝚂𝚃𝙾𝙶𝚁𝙰𝙿𝙷𝚈</a>
+<a href="https://akaalogic.neocities.org" target="content">𝙽𝙴𝙾𝙲𝙸𝚃𝙸𝙴𝚂</a> | <a href="https://taishomelodia.straw.page" target="content">𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴</a> | <a href="https://taishomelodia.atabook.org" target="content">𝙰𝚃𝙰𝙱𝙾𝙾𝙺</a> | <a href="https://rentry.co/taishomelodia" target="content">𝚁𝙴𝙽𝚃𝚁𝚈</a>
 </p>
 <p align="center">
 🍉 <a href="https://arab.org/click-to-help/palestine/" target="content">Do your daily clicks.</a> 🍉
